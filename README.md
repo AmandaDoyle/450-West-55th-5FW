@@ -52,3 +52,5 @@ Named for the notorious 19th century motorcycle gang, “Hell’s Kitchen” was
 [![alt text](https://user-images.githubusercontent.com/5611960/61745629-f24ed480-ad67-11e9-9ea8-8dbf4428de52.png)](https://goo.gl/maps/VKdbrh1pvyqHCb8z5)
 
 Income restricted to less than $125,000 per year
+
+Contact amanda.doyle.nyc@gmail.com for serious inqueries
